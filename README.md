@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... nothing for now as i still need more expertise to be of any use to someone
 - 📫 How to reach me ... i am most active on 𝕏
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... i like Minecraft
+- ⚡ Fun fact: ... i like Minecraft Redstone
 
 <!---
 realGuyCrimson/realGuyCrimson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
